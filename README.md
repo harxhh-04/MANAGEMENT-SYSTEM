@@ -8,6 +8,6 @@
 
 💬 Ask me about anything, I am happy to help and learn
 
-😄 Pronouns: Coder, Leader and Kind Hearted.
+😄 Pronouns: Coder, Leader 
 
 💡 Occasionally I do participate in Hackathons
